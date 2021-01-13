@@ -1,2 +1,2 @@
-✨ Hello, I am Aloha ✨ 
-I am a newbie
+✨ Hello, I am Amandeep ✨ 
+
